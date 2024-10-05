@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SarathBabu-Vanthala
-- 👀 I’m interested in coding,solving problems,travelling,knowing new things.
+- 👀 I’m interested in coding,solving problems,travelling,Exploring new things.
 - 🌱 I’m currently pursuing my btech ...
 - 💞️ I’m looking to collaborate with the most  MNC's...
 - 📫 How to reach me mail:sarathbabuvanthala@gmail.com,
